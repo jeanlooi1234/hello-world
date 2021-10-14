@@ -7,3 +7,6 @@ Hi I am Jean, welcome to github. Heelo
 Good Lunch!
 
 Added from the remote repo
+
+Thank you everyone welcome back lalalalalalalalala
+Buy a new macbook or not?????
